@@ -1,2 +1,0 @@
-# Super-kody
-Super kody
